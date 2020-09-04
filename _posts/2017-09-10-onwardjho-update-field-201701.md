@@ -32,6 +32,5 @@ An additional note: 2016 has also been a year of making new friends.  An especia
 Here is a short recap of 2016:
 
 - Best book: 2016 was not year of a lot of books, partly because I banned myself from reading any English books for a few months while learning Spanish, and partly because of the move to a new place and job. Among the books I did read, two stood out: When Breath Becomes Air (Paul Kalanithi) and Behind the Beautiful Forevers (Katherine Boo).
-- # Countries visited: 7 – Argentina, Uruguay, Canada, China, USA, Chile & Mexico.
+- Countries visited: 7 – Argentina, Uruguay, Canada, China, USA, Chile & Mexico.
 - New countries: 1 – Uruguay.
-- Carbon footprint: 25 legs of flights
