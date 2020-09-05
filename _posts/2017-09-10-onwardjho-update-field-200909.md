@@ -2,7 +2,7 @@
 layout: post
 title: "Update from the Field II, Kinshasa"
 date: 2009-09-02
---
+---
 Hello All!
 
 Meet Skol, the building cat at Av. Malemba Nkundu. Don’t let her looks fool you, she’s really not a particularly nice cat. She has learnt my schedule well so that every morning, before work and every day after work, she comes by to my apartment and asks for food. But when I try to pet her, she turns around and tries to bite me or claw me. My neighbor, who saw her as a kitty a year ago around the apartment complex and who named her after the local beer, Skol, has found an explanation for her defensiveness, particularly when you touch her belly: she may be pregnant. I don’t know if I believe this, or if I want to think that she’s just mean-spirited. We shall see.
