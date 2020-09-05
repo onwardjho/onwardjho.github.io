@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Update from the Field: 10(+) Years Later"
+title: "Update from the Field IV"
 date: 2011-01-4
 ---
 On my way back from vacation in Zambia as I was stopping through Addis Ababa, Ethiopia for a night of transit, I met a mother carrying a toddler traveling from Juba, southern Sudan back to her current home in Manitoba, Canada.  It was the first time she had returned to Sudan since she left 21 years ago.  When civil war broke out, she fled with her family to Khartoum, northern Sudan, and left shortly afterwards for studies in India.  Eventually, she made Canada her home.  Cause of return?  Her brother’s marriage.
