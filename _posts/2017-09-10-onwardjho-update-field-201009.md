@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Update from the Field: 10(+) Years Later"
+title: "Update from the Field III, Goma"
 date: 2010-09-09
 ---
 On the first day after I turned 24 this year, I climbed Mount Nyiragongo, one of the few active volcanoes in the world where you can climb to the summit and look down into a cauldron of fire – a fiery lava lake.
