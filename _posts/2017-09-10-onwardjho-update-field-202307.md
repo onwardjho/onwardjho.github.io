@@ -12,6 +12,7 @@ Length warning: This piece is incredibly long. It is self-indulgent. You are not
 
 ***
 Seven days after Reza’s sister was killed, he came back to the office. The grief in his eyes was a bottomless depth that I had never seen before. No words of condolences seemed adequate.
+
 I was not in Kabul when it happened, but even hearing second-hand accounts from other colleagues, it was heart-wrenching. Three gunmen stormed Kabul University, Afghanistan’s largest university in November 2020, holding its students and staff hostage. They then systematically went around the campus, killing at least 19 people and wounding another 20 until Afghan security forces and American troops killed the assailants. ISIS later claimed responsibility. Reza’s sister was said to have been shot in the stomach, dying on the spot shortly after. Colleagues told me that when Reza learned of the siege, he instinctively knew that his sister was in danger and wanted to go find her on campus. Reza is Hazara, an ethnic group that is primarily Shia Muslim, historically marginalized. Extremist groups like ISIS believe that they are heretic and have targeted them in multiple attacks.
 
 I don’t know how anyone moves on from something so devastating, but slowly, that dark heavy cloud of grief over Reza lightened, at least to the external eye, and life continued.
